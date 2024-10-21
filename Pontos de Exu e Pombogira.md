@@ -2,676 +2,376 @@
 # Pontos de Exu e Pombo-Gira
 ## Exu Sete Catacumbas
 No corredor do cemitério
-Eu avistei sete catacumbas (2x)
-
+Eu avistei Sete Catacumbas (2x)
 Ele pulava num pé só
 Pulava de tumba em tumba (2x)
 ## Exu Sete Encruzilhadas
 7 vezes no caminho
-
 7 vidas um destino
-
 7 amores são a história
-
 Desse Exu trabalhador
-
 Com ele sempre ao meu lado
-
 Sei que estarei de pé
-
-Salve 7 Encruzilhadas
-
+Salve Sete Encruzilhadas
 O meu amigo de fé
 
-  
-
 Era madrugada
-
 Quando uma gargalhada
-
 Na encruza ecoou
-
 A lua brilhava
-
 A rua iluminava
-
 Os caminhos
-
 Por onde Exu passou
-
 Quando o galo canta
-
 É hora
-
-  
-
 7 vezes o sino bateu
-
 Com sua capa bem exuberante
-
 Homem nobre e elegante
-
-Seu 7 Encruza apareceu
-
+Seu Sete Encruza apareceu
 Feitiços e mandingas
-
 Sei que ele vai desmanchar
-
 Ele corta demanda 
-
 Nas forças de seu axé
 
-  
-  
-
 7 facas fincadas
-
 Na encruza encontrei
-
-Ele é Seu 7 o dono da rua
-
+Ele é Seu Sete o dono da rua
 Onde ele é Rei (2x)
-
 ## Exu Sete Encruzilhadas
-
 Odara, morador da encruzilhada 
-
 Firma seu ponto com sete facas cruzadas (2x)
-
-  
-
 Filho de umbanda pede com fé
-
-Pra seu sete encruzilhadas 
-
+Pra seu Sete Encruzilhadas 
 Que ele dai o que você quer (2x)
-
 ## Exu Sete Encruzilhadas
-
 O sino tocou, lá na calunga
-
 A lua clareou
-
-Saudando esse Exú
-
+Saudando esse Exu
 Guardião da encruzilhada e meu protetor (2x)
-
-  
-
+ 
 Lá na calunga
-
-Ele faz a sua lei.
-
+Ele faz a sua lei
 Mas é a meia-noite na encruza
-
 Que ele é o rei
-
 Salve a sua capa encarnada
-
 Meu guardião, Seu sete Encruzilhadas
-
 Salve esse Exú de Umbanda
-
 Que vem na nossa gira
-
 Cortar as demandas
 
-  
-
 O sino tocou, lá na calunga
-
 A lua clareou
-
-Saudando esse Exú
-
-Guardião da encruzilhada e meu protetor (2x)
-
-  
+Saudando esse Exu
+Guardião da encruzilhada e meu protetor
 
 Com sua capa ele me cobre
-
 Com seu tridente me defende
-
 Com seu punhal, ele faz a sua cura
-
 E quebra as correntes
-
 Com sua bengala e cartola
-
 Em meus caminhos me apóia
-
 Com ele não temo o perigo
-
 Com seu Sete Encruzilhadas
-
 Não estou sozinho
-
-# 7 Encruzilhadas
-
-7 meu amigo de alma
-
-7 meu irmão Kimbandeiro
-
+# Exu Sete Encruzilhadas
+Seu Sete meu amigo de alma
+Seu Sete meu irmão Kimbandeiro
 Girar, todo mundo gira
-
-O seu 7 é, mensageiro de Oxalá
-
+O seu Sete é, mensageiro de Oxalá
 # Exu Bell Zebuth
-
 Olha Bell Zebuth, olha Bell Zebuth (2x)
-
 Tão te chamando na Kimbanda, olha Bell Zebuth (2x)
-
 # Exu Capa Preta
-
 Com faca de dois fios, ninguém pode brigar (2x)
-
 Saravá seu Capa Preta, vamos todos respeitar (2x)
-
 # Exu Capa Preta
-
 Na porteira da calunga
-
-Eu ví um homem de preto (2x)
-
+Eu vi um homem de preto (2x)
 Ele trazia uma bengala
-
 Um capa encarnada (2x)
-
 Ele é Exu Capa Preta
-
-Ele é Rei das 7 encruzilhadas (2x)
-
-# Exu Caveira
-
-Deu meia-noite na calunga, a catacumba gemeu (2x)
-
-Olha que vêm lá do cruzeiro, João Caveira apareceu (2x)
+Ele é rei das 7 encruzilhadas (2x)
+# Exu João Caveira
+Deu meia-noite na calunga
+A catacumba gemeu (2x)
+Olha que vêm lá do cruzeiro
+João Caveira apareceu (2x)
 
 Risca, risca, risca ponto
-
 Na folha da bananeira
-
 João Caveira é homem sério
-
 E não de brincadeira (2x)
 
 Ordenança de Atotô e também de Omolú
-
 Cemitério é coisa séria e não pra qualquer um
-
 Saravando com pipocas, para sua chagas curar
-
 João Caveira é curador e ele vêm pra te ajudar
-
 Saravá João Caveira, guardião de todas as almas
-
 Ele é Exu Odara e nele eu posso confiar
 
-# Exu Caveira
-
+# Exus Caveiras
 É a hora
-
 É chegada a hora
-
 De firmar nossa porteira
-
 Com a força da falange dos Caveiras (2x)
 
 Vamos todos bater palmas
-
 Para quando Exu chegar
-
 Quero ouvir o seu gargalhar
-
 Até o dia clarear
-
 Ele vem do cemitério
-
 Ele vem lá da Calunga
-
 Saravá João Caveira
-
-E seu 7 Catacumbas
+E seu Sete Catacumbas
 
 É a hora
-
 É chegada a hora
-
 De firmar nossa porteira
-
 Com a força da falange dos Caveiras (2x)
 
 O primeiro enviado é o seu Tata Caveira
-
-Vou chamar seu 7 Covas
-
-E também 7 porteiras
-
+Vou chamar seu Sete Covas
+E também Sete Porteiras
 Todos eles mensageiros
-
 Do nosso pai Omulú
-
 Por isso hoje na gira
-
 Vamos Saravá Exu
+# Exu Caveira e Pombo-Gira Maria Padilha
+Caminhando na calunga
+Uma voz me chamou
 
-# Exu Caveira e Pombogira Maria Padilha
-
-Caminhando na Calunga, uma voz me chamou
-
-Era uma linda mulher, Exu Maria Padilha rainha de Lúcifer
+Era uma linda mulher
+Exu Maria Padilha rainha de Lúcifer (2x)
 
 Ela me disse, amigo o que faz aqui
-
-Não é sua morada, esse lugar não é pra tí
+Não é sua morada, esse lugar não é pra ti
 
 Hoje estou aqui pra lhe avisar
-
-Sou a Bruxa da noite, a rainha de Sabá
+Sou a Bruxa da noite, a rainha de Sabá (2x)
 
 Exu Caveira mandou lhe avisar
-
-Não entra mais no cemiterio se não sua alma vai ficar
+Não entra mais no cemitério se não sua alma vai ficar
 
 Exu Caveira auê, Exu Caveira auê
-
-Não entro mais no cemiterio sem a permissão de você
-
+Não entro mais no cemitério sem a permissão de você (2x)
 # Exu Caveira
-
 Eu entrei lá na calunga
-
 E parei lá no cruzeiro
-
-Veio um vento forte e levantou poeira
-
-Eu entrei lá na calunga
-
-E parei lá no cruzeiro
-
 Veio um vento forte e levantou poeira
 
 Zua zuo zua zueira
-
-Aquele vento era Exu Caveira
-
-Zua zuo zua zueira
-
-Aquele vento era Exu Caveira
+Aquele vento era Exu Caveira (2x)
 
 Marimbondo pequenino não tem medo de ninguém
-
 Ele é o Exu Caveira
-
 E só trabalha para o bem
-
 Se você não acredita
-
 É melhor acreditar
-
 Ele é o Exu Caveira
-
 Aqui e em qualquer lugar
 
 Zua zuo zua zueira
-
-Aquele vento era Exu Caveira
-
-Zua zuo zua zueira
-
-Aquele vento era Exu Caveira
+Aquele vento era Exu Caveira (2x)
 
 Vento forte vento fraco
-
 Na Calunga tem poder
-
 Esta poeira é do Caveira
-
-E ele vem nos defender
-
-Vento forte vento fraco
-
-Na Calunga tem poder
-
-Esta poeira é do Caveira
-
-E ele vem nos defender
+E ele vem nos defender (2x)
 
 Zua zuo zua zueira
-
-Aquele vento era Exu Caveira
-
-Zua zuo zua zueira
-
-Aquele vento era Exu Caveira
-
-# Caveira
-
+Aquele vento era Exu Caveira (2x)
+# Exu Caveira
 Eu vou soltar um galo preto, no romper da zero horas
-
-Pra amansar a lingua de quem falou pelas minhas costas
+Pra amansar a língua de quem falou pelas minhas costas
 
 Meia-noite em ponto que Exu come bixo vivo
-
 Aí vocês vão ver como quebra o inimigo
 
 Chora Calunga, no tronco da figueira
-
 Chora Calunga, nas mãos de Exu Caveira
-
-# Caveira
-
+# Exu Caveira
 Exu Caveira comedor de carne crua
-
 Espera o teu lá no meio da encruza (2x)
-
 Portão de ferro, cadeado de madeira
-
-O dono da Calunga ainda é Exu Caveira (2x)
-
+O dono da calunga ainda é Exu Caveira (2x)
 Caveira, Caveira
-
 O seu povo lhe chamou pra trabalhar (2x)
-
-# Caveira
-
+# Exu Caveira
 Foi sob a lua
-
 Que encontrei um grande amigo
-
 Foi sob a lua
-
 Que encontrei meu protetor
-
-  
-
 Lá na calunga conheci Exu Caveira
-
-Onde o luar, sua morada iluminou
-
+Onde o luar, sua morada iluminou (2x)
   
-
 Ah esse Exu tão poderoso
-
 Eu devo toda minha gratidão
-
 É ele quem me da caminho
-
 Quando tropeço é quem me estende a mão
 
-  
-
 Foi sob a lua
-
 Que encontrei um grande amigo
-
 Foi sob a lua
-
 Que encontrei meu protetor
-
-  
-
 Lá na calunga conheci Exu Caveira
-
-Onde o luar, sua morada iluminou
-
-  
+Onde o luar, sua morada iluminou (2x)
 
 Muitos o temem por sua seriedade
-
 Quem anda certo, não têm o que temer
-
 Peça com fé a esse grande Exu
-
 Que sempre atende a quem faz por merecer
-
 Ele me acompanha seja noite ou seja dia
-
 Estou seguro sob sua proteção
-
 Que sua luz seja constante em minha vida
-
-Porque em ela só restaria escuridão
-
-# Caveira
-
+Porque em ela restaria escuridão
+# Exu Caveira
 Fui lá lomba falar com Exu
-
 Lá encontrei o Senhor Omolú (2x)
 
 Eu disse a ele, me leva lá na ladeira
-
 Preciso falar com Senhor Exu Caveira (2x)
 
 Fica a vontade, entra meu rapaz
-
-Essa é minha casa, na cidade de satanas (2x)
+Essa é minha casa, a cidade de satánas (2x)
 
 Têm uma coisa que eu preciso lhe falar
-
 Quem entra nesta cidade nunca mais pode voltar
-
 Não vai mais voltar, não vai mais ver o sol nascer
-
 Seja bem-vindo, você acaba de morrer
 
-Todo defunto pertence a escuridão
-
+Alguns pertence a escuridão
 Virou egun na terra da solidão
-
 Na terra da solidão, na terra da solidão…
-
-# Caveira
-
+# Exu João Caveira
 Mas ele mora, na quela morada
-
 Onde não passa água
-
 Onde não brilha o sol
 
 Mas ele é João Caveira auê
-
-Exu das Almas, da Calunga é
-
-# Caveira
-
+Exu das Almas, da Calunga é (2x)
+# Exu Caveira
 Ê puerê, ê puerá (2x)
-
-Olha mosca varegeira, salve Exu Caveira (2x)
-
-# Caveira
-
+Olha mosca varejeira, salve Exu Caveira (2x)
+# Exu Caveira
 Se matar o boi, mata na porteira (2x)
-
 Come a carne toda e deixa o osso pro Caveira (2x)
 
 A porteira é larga, deixa o boi passar
-
 Se ele não morrer aqui, morre em qualquer lugar (2x)
-
-# Tata Caveira
-
-Soltaram um bode preto
-
-Meia noite na calunga
+# Exu Tata Caveira
+Soltaram bode preto
+Meia-noite na calunga (2x)
 
 Ele correu os quatros cantos
-
 Foi parar lá na porteira
-
-Bebeu marafo com Tata Caveira
-
-  
-
-# Caveirinha
-
-Eu ví um moço bonito
-
+Bebeu marafo com Tata Caveira (2x)
+# Exu Caveirinha
+Eu vi um moço bonito
 No meio da calunga
-
 Todo vestido preto
-
-Sentado numa tumba
+Sentado numa tumba (2x)
 
 Laroyê Exu, pequeno da calunga
-
-Seu Caveirinha vêm, das 7 catacumbas
-
+Seu Caveirinha vêm, das 7 catacumbas (2x)
 # Exu De 2 Cabeças
-
 Exu que têm 2 Cabeças
-
 Ele faz sua gira com fé (2x)
-
 Uma é Satanás do Inferno
-
-A outra é Jesus de Nazare (2x)
-
+A outra é Jesus de Nazaré (2x)
 # Exu dos Rios
-
-O galho quebra escuto a agua assobiar
-
-Tem redemunho sinto um calafrio
+O galho quebra escuto a água assobiar
+É redemunho sinto um calafrio
 
 Seu brado forte ecoando na mata
+Correnteza das águas é Exu dos Rios (2x)
 
-Correnteza das águas é exu dos rios (bis)
-
-Verte da terra corre em direçao ao mar
-
+Verte da terra corre em direção ao mar
 Balança o mato, sacode a pedreira
 
 Força das águas vem pra trabalhar
+Atravessa mata virgem, abençoa a sua aldeia (2x)
 
-Atravessa mata virgem, abençoa a sua aldeia (bis)
-
-Vamos saudar exu dos rios 
-
-E curimbar com o povo das águas (bis)
+Vamos saudar Exu dos Rios 
+E curimbar com o povo das águas (2x)
 
 Parada por cima por baixo revolta
-
-Que brinca com "rio" pode nao ter mais volta
+Que brinca com "rio" pode não ter mais volta (2x)
 
 Quando ele vem das profundezas do rio
+Firma seu ponto no clarão das águas (2x)
 
-Firma seu ponto no clarão das águas
-
-Salve o senhor do rio
-
-Salve o senhor do rio
-
-Salve o senhor do rio
-
-O soberano das aguas (bis)
-
-  
-
-# Exu e Pombogira
-
-Larô, Larô Exu, Pombogira (2x)
-
+Salve o Senhor do Rio
+Salve o Senhor do Rio
+Salve o Senhor do Rio
+O soberano das águas (2x)
+# Exu e Pombo-Gira
+Larô, Larô Exu, Pombo-Gira (2x)
 O sol se foi, saiu a noite
-
-Subiu a lua a iluminar o meu terreiro
-
+Subiu a lua a iluminar o meu terreiro (2x)
 Tambor rufou, Elebó está arriado
-
 Aqui no meu terreiro só faltava você
-
 Larô Exu
-
-# Exu e Pombogira
-
+# Exu e Pombo-Gira
 Olha, não mexa com o povo da calunga!
-
-A cova pode ser rasa, mas a terra e profunda!
+A cova pode ser rasa, mas a terra é profunda! (2x)
 
 Não e brincadeira, pense bem antes de entrar
-
 Tem guardião na porteira, sentinela a vigiar!
-
-Não faca aos outros, o que não quer receber,
-
+Não faça aos outros, o que não quer receber,
 Pois o mal se torna o dobro quando volta pra você
 
-  
-
 Olha, não mexa com o povo da calunga!
-
-A cova pode ser rasa, mas a terra e profunda!
-
-  
+A cova pode ser rasa, mas a terra e profunda! (2x)
 
 Tome cuidado com aquilo que pedir
-
 Pois perde a tranquilidade quem pedir pra destruir
-
 Preste atenção no caminho que escolher
-
 Pode não haver retorno quando se arrepender!
-
-  
-
-Olha, não mexa com o povo da calunga!
-
-A cova pode ser rasa, mas a terra e profunda!
-
 # Exu Legbará
-
 Lua branca leruê, alma santa lerua (2x)
-
 Alma santa de Pombogirê, alma santa de Pombogirá (2x)
 
-# Lúcifer
+E debaixo de um abacateiro
+Mora um negro velho
+É Exu guerreiro
+Na linha dos Orixás
+É o maior Exu, ele é Exu Legbará
 
+Oh Legbará, oh legbará (2x)
+# Exu Lúcifer
 Exu ganhou um gado
-
 Mas não quis comer sozinho (2x)
-
 Ele chamou seus camaradas
-
 Foi pedaço por pedacinho (2x)
-
 Aí chegou, seu Lúcifer
-
-A Pombogira não é homem, ela é mulher (2x)
-
+A Pombo-Gira não é homem, ela é mulher (2x)
 # Exu Marabô
-
 À meia noite,  
 Ao cair da madrugada,  
 Galo canta, é a alvorada  
-Pia itatuité.
+Pia itatuité
 
-Nem sei de onde começou a caminhada:  
+Não sei de onde começou a caminhada:  
 Encruza, calunga, estrada…?  
 Venha de onde vier
 
 Ele é o mago, o senhor das oferendas,  
 O homem das velhas lendas  
-Que fazem o sague gelar;
+Que fazem o sague gelar
 
-Ele é o bruxo que faz cura, faz feitiço,  
+Ele é o bruxo que faz cura, faz feitiço  
 Em macumba de catiço.  
 Ena Ena Mojubá!
 
-  
-Exu Marabô.  
+Exu Marabô  
 Exu Marabô ôh ôh  
 Exu Marabô  
-Exu Mrabô  
-Ele, Elebara.  
+Exu Marabô  
+Ele, Elebara  
 Ele Alarô  
-Exu Marabô
-
-# Marabô
-
+# Exu Marabô
 Auê Exu Ganga, Ganga, Ganga é Marabô
-
 Auê Exu Ganga, Ganga, Ganga é um bixo só (2x)
-
 Eu fui no mato, Ganga
 
 Colher cipó, Ganga
