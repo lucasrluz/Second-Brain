@@ -1,4 +1,5 @@
 # BBAS3
 
-Site com relação a investidores: ri.bb.com.br
+Site com relação a investidores: www.ri.bb.com.br
+
 
