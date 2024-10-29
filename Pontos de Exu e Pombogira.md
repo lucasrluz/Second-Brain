@@ -357,7 +357,7 @@ Venha de onde vier
 
 Ele é o mago, o senhor das oferendas,  
 O homem das velhas lendas  
-Que fazem o sague gelar
+Que fazem o sangue gelar
 
 Ele é o bruxo que faz cura, faz feitiço  
 Em macumba de catiço.  
@@ -372,282 +372,167 @@ Ele Alarô
 # Exu Marabô
 Auê Exu Ganga, Ganga, Ganga é Marabô
 Auê Exu Ganga, Ganga, Ganga é um bixo só (2x)
+
 Eu fui no mato, Ganga
-
 Colher cipó, Ganga
-
 Eu vi um bixo, Ganga
-
 De um olho só (2x)
-
 # Marabô
-
 E na figueira, Exu Marabô
-
 E no cruzeiro, Exu Marabô
-
 E no cemitério, Exu Marabô
-
 E nas Almas onde ele se criou
-
 Exu Maré, Tranca-Rua, Marabô
 
 É Marabô
-
 É Marabô
-
 É Marabô
-
 # Marabô
-
 No clarão da Lua  
-Exu chegou caminhando na rua
-
-Exu, Exu  
-Os seus caminhos são de paz e de amor  
-Exu, Exu  
-Os meus caminhos quem protege é Marabô
-
-Laroyê seu Marabô!  
-Laroyê!
-
+Exu chegou caminhando na rua (2x)
+Exu, Exu os seus caminhos são de paz e de amor  
+Exu, Exu os meus caminhos quem protege é Marabô
 # Marabô
-
 Ventou no canavial  
-E um trovão lá no céu ecoou  
-Ventou no canavial  
-E um trovão lá no céu ecoou
+Um trovão lá no céu ecoou  (2x)
 
-Salve Iansã e Xango  
-Salve a coroa de exu marabô  
-Salve Iansã e Xango  
-Salve a coroa de exu marabô
-
-Ventou no canavial  
-E um trovão lá no céu ecoou  
-Ventou no canavial  
-E um trovão lá no céu ecoou
-
-Salve Iansã e Xango  
-Salve a coroa de exu marabô
-
+Salve Iansã e Xangô  
+Salve a coroa de exu marabô (2x)  
 # Exu Marabô
-
 Vinha pela estrada deserta
-
 Quando eu vi, marabô me chamou (2x)
 
-  
-
 Só sei que me convidaram, mas
-
-Só saudei marabô 
-
+Só saudei Marabô 
 Que caminha na estrada (2x)
 
-  
-
-Tá na gira do balanço ê ê
-
-Tá na gira do balanço aaa (2x)
-
-  
-
 Marabô iê
-
 Marabô mojuba uê (2x)
 
+Tá na gira do balanço ê ê
+Tá na gira do balanço aaa (2x)
+
+Marabô iê
+Marabô mojuba uê (2x)
 # Ogum Megê
-
-Na porta da calunga eu ví
-
-Um moço bonito a sorrir
-
+Na porta da calunga eu vi, eu vi
+Um moço bonito a sorrir (2x)
 Calunga Laroyê, calunga de Ogum Megê
-
 # Exu Pantera Negra
-
 Vermelho é a cor do sangue do meu pai
-
-O verde é a cor das matas
-
+O verde é a cor das matas (2x)
 Saravá ao Exu Pantera Negra
-
-Saravá as matas onde mora
-
+Saravá as matas onde mora (2x)
 # Exu Pinga Fogo
-
 Pingo Fogo lá no alto
-
-Pinga Fogo lá na serra
-
+Pinga Fogo lá na serra (2x)
 Abre a porteira minha gente
-
-Pinga Fogo está na terra
-
-# Exu (Advertencia)
-
-Quem têm Exu não pode ter quer
-
-Quem com diabo agora que eu quero ver
-
+Pinga Fogo está na terra (2x)
+# Exu (Advertência)
+Quem têm Exu não pode ter quer (2x)
+Quem com diabo, agora que eu quero ver (2x)
 # Exu Rei
-
 Deu boa noite a hora é essa
-
 Exu Rei já chegou, agora é festa
-
-  
-
 # Exu Rei
-
 Na encruzilhada chamei seu Exu Rei
-
 Chamei seu Exu Rei
+Chamei seu Legbará (2x)
 
-Chamei seu Legbará
-
-  
-
-Lodê Exu, Exu Legbará
-
+Lodê Exu, Exu Legbará (4x)
 # Exu
-
-Senhor Exú  
-Dono da Encruzilhada  
+Senhor Exú dono da Encruzilhada  
 Nós lhe chamamos para trabalhar  
 Queremos ouvir sua risada  
 Queremos sua ajuda  
 Venha nos guardar
 
 Se pedimos o senhor sempre vem  
-Nos amapara  
+Nos ampara  
 E nos dá seu Axé
 
 É o senhor o instrumento da lei  
-A defender filhos de fé
+A defender filhos de fé (2x)
 
 Senhor Exú Omojuba  
 Senhor Exú Laroyê  
+
 Ele é Exú do nosso congá  
-É o guardião que vem nos proteger
-
+É o guardião que vem nos proteger (2x)
 # Exu
-
-Quando amanhece  
+Quando anoitece  
 Exú ___ dá boa noite
 
-Quando anoitece  
-Exú veludo dá boa noite
-
 Boa noite  
 Boa noite  
 Boa noite  
-Exú ___ boa noite [2x]
-
-  
-  
-
+Exú ___ boa noite (2x)
 # Exu Maré
-
 Ele vem navegando no mar
-
-Lá no reino de Janaina
+Lá no reino de Janaina (2x)
 
 Navegando, vem navegando
-
-Exu Maré lá do mar vem chegando
+Exu Maré lá do mar vem chegando (2x)
 
 Ele vêm navegando nas ondas do mar
-
-Ele marinheiro da Mãe Iemanjá
+Ele marinheiro da Mãe Iemanjá (2x)
 
 Exu Maré, Exu Maré, Exu Maré
-
-Vêm nos ajudar
-
+Vêm nos ajudar (2x)
   
-
 Você quer saber quem sou eu
-
-Quando venho nas ondas do mar
+Quando venho nas ondas do mar (2x)
 
 Eu sou filho de Ondina
-
-Se precisa mande me chamar
+Se você precisa mande me chamar (2x)
 
 Exu Maré, Exu Maré, Exu Maré
-
-Vêm nos ajudar
-
+Vêm nos ajudar (2x)
 # Exu Maré
-
 Mas eu tenho o balanço, eu tenho o balanço, eu tenho o balanço na terra
-
-Eu tenho o balanço, eu tenho o balanço, eu tenho o balanço no fundo do mar
+Eu tenho o balanço, eu tenho o balanço, eu tenho o balanço no fundo do mar (2x)
 
 Eu fui no mar, pra saudar Exu Maré (2x)
-
 # Exu Tiriri
-
-É meia noite em ponto e o galo cantou  
-É meia noite em ponto e o galo cantou  
-Cantou pra anunciar que Tiriri chegou  
-Cantou pra anunciar que Tiriri chegou
+É meia noite em ponto e o galo cantou  (2x)  
+Cantou pra anunciar que Tiriri chegou  (2x)
 
 Ele vem da calunga  
 De capa e cartola  
 E tridente na mão
 
-Esse Exú de fé  
+Esse Exu de fé  
 É quem nos trás o axé  
 E nos dá proteção
 
-Ele é Exú Odara  
+Ele é Exu Odara  
 E vem nos ajudar  
 Com seu punhal ele fura  
-Ele corta demanda, ele salva, ele cura, exú é mojubá
+Ele corta demanda, ele salva, ele cura, Exu é mojubá
 
-Laroyê Exú  
-Exú a mojuba  
-Eu perguntei a ele o que é Exú  
-Ele veio me falar  
-Laroyê Exú  
-Exú a mojuba  
-Traz sua falange  
-Exú Tiriri para trabalhar
+Laroyê Exu  
+Exu a mojuba  
+Eu perguntei a ele o que é Exu  
+Ele veio me falar (2x)
 
-Exú é caminho, é energia, é vida, é determinação  
-É cumpridor da lei, Exú é esperto, Exú é guardião  
-Exú é trabalho, é alegria veloz, Exú é viver  
+Exu é caminho, é energia, é vida, é determinação  
+É cumpridor da lei, Exu é esperto, Exu é guardião  
+Exu é trabalho, é alegria veloz, Exu é viver  
 É a magia, é o encanto  
-É o fogo no sangue, na veia vibrando, Exú é lazer
+É o fogo no sangue, na veia vibrando, Exu é prazer
 
-Laroyê Exú  
+Laroyê Exu  
 Exú a mojuba  
 Traz sua falange  
-Exú Tiriri para trabalhar  
-Laroyê Exú  
-Exú a mojuba  
-Traz sua falange  
-Exú Tiriri para trabalhar
+Exu Tiriri para trabalhar (2x)  
 
-Vem seu tranca-ruas, Maria Padilha e Exú Marabô  
-Sete encruzilhadas, seu Zé Pilintra aqui chegou  
+Vem seu Tranca Ruas, Maria Padilha e Exu Marabô  
+Sete Encruzilhadas, seu Zé Pilintra aqui chegou  
 Maria Mulambo, Maria Farrapo e Dona Figueira  
 Dona Sete Saias, Pombo-gira Menina e Rosa Vermelha  
-Sete catacumbas, Exú caveira firma o ponto aqui  
-E o Exú Capa Preta anunciou a festa do Exú Tiriri
-
-É meia noite em ponto e o galo cantou  
-É meia noite em ponto e o galo cantou  
-Cantou pra anunciar que Tiriri chegou  
-Cantou pra anunciar que Tiriri chegou
-
+Sete catacumbas, Exu caveira firma o ponto aqui  
+E o Exu Capa Preta anunciou a festa do Exu Tiriri
 # Exu Tiriri
-
-  
-
 Essa é uma história, que aconteceu comigo  
 Andava pela rua, e no caminho só perigo  
 Eu não tinha paz, eu não tinha verdade  
@@ -656,63 +541,44 @@ Nos caminhos da amargura, buscava felicidade
 Foi então que no meio da encruza  
 Avistei um homem com tridente na mão  
 Me disse moço, não temas o perigo  
-Pois exú é caminho, estou aqui pra lhe ajudar
+Pois Exu é caminho, estou aqui pra lhe ajudar
 
 Quando precisar é só chamar por mim  
-Sou seu amigo, guardião eu me chamo tiriri  
-Quando precisar é só chamar por mim  
-Sou seu amigo, guardião eu me chamo tiriri
+Sou seu amigo, guardião eu me chamo tiriri (2x)  
 
 É tiriri, rei da encruza  
 É tiriri, rei da calunga  
 Seu tiriri, é rei em qualquer lugar  
-Que não há portas fechadas, quando vem pra trabalhar
-
-É tiriri, rei da encruza  
-É tiriri, rei da calunga  
-Seu tiriri, é rei em qualquer lugar  
-Que não há portas fechadas, quando vem pra trabalhar
-
+Que não há portas fechadas, quando vem pra trabalhar (2x)
 # Exu Tiriri
-
 Eu vi Exu dando gargalhada
 
 Com tridente na mão
-
-Sua capa rodada
+Sua capa bordada (2x)
 
 Mas ele é Exu Tiriri
-
-Morador lá da calunga vem firma seu ponto aqui.
+Morador lá da calunga vem firma seu ponto aqui (2x)
 
 # Exu Tiriri
-
 Você não mora onde eu moro  
 Você não vê o que eu vi  
 O homem da encruzilhada  
 É o Exu Tiriri!
 
-  
+Tiriri é belo, é belo, é belo Exu!  (4x)
 
-Tiriri é belo, é belo, é belo Exu!  
-Tiriri é belo, é belo, é belo Exu!  
-Tiriri é belo, é belo, é belo Exu!  
-Tiriri é belo, é belo, é belo Exu!
+Já bateu a meia-noite
+Vamos ver quem vem ai (2x)
+Pra firmar nossa corrente
+Vem chagando Tiriri
 
+Tiriri é belo, é belo, é belo Exu!  (4x)
 # Tiriri
-
 Exu Tiriri Lanã, Lanâ cadê seu Tiriri
-
 Mas ele veio de Aruanda
-
 Pra saudar povo de Umbanda
-
 Exu Tiriri Lanã
-
-  
-
 # Exu Tranca Rua
-
 Deu meia-noite  
 A Lua se escondeu  
 Lá na encruzilhada, dando a sua gargalhada  
@@ -721,271 +587,117 @@ Tranca Rua apareceu
 É laroyê, é laroyê, é laroyê  
 É mojubá, é mojubá, é mojubá  
 Ele é odara, dando a sua gargalhada  
-Quem tem fé em Tranca Rua, é só pedir, que ele dá
-
-É laroyê, é laroyê, é laroyê  
-É mojubá, é mojubá, é mojubá  
-Ele é odara, dando a sua gargalhada  
-Quem tem fé em Tranca Rua, é só pedir, que ele dá
-
-Deu meia-noite  
-A Lua se escondeu  
-Lá na encruzilhada, dando a sua gargalhada  
-Tranca Rua apareceu
-
-É laroyê, é laroyê, é laroyê  
-É mojubá, é mojubá, é mojubá  
-Ele é odara, dando a sua gargalhada  
-Quem tem fé em Tranca Rua, é só pedir, que ele dá
-
-É laroyê, é laroyê, é laroyê  
-É mojubá, é mojubá, é mojubá  
-Ele é odara, dando a sua gargalhada  
-Quem tem fé em Tranca Rua, é só pedir, que ele dá
-
-É laroyê, é laroyê, é laroyê  
-É mojubá, é mojubá, é mojubá  
-Ele é odara, dando a sua gargalhada  
-Quem tem fé em Tranca Rua, é só pedir, que ele dá
-
-Deu meia-noite  
-A Lua se escondeu  
-Lá na encruzilhada, dando a sua gargalhada  
-Tranca Rua apareceu
-
-É laroyê, é laroyê, é laroyê  
-É mojubá, é mojubá, é mojubá  
-Ele é odara, dando a sua gargalhada  
-Quem tem fé em Tranca Rua, é só pedir, que ele dá
-
-É laroyê, é laroyê, é laroyê  
-É mojubá, é mojubá, é mojubá
-
+Quem tem fé em Tranca Rua, é só pedir, que ele dá (2x)
 # Exu Tranca Rua
-
 Eu amei alguém
-
 E esse alguém
-
-Não ama ninguém
-
-Eu amei alguém
-
-E esse alguém
-
-Não ama ninguém
+Não ama ninguém (2x)
 
 Eu amei o sol
-
 Eu amei a lua
-
 Na encruzilhada
-
-Eu saudei Seu Tranca Rua
-
-Eu amei o sol
-
-Eu amei a lua
-
-Na encruzilhada
-
-Eu saudei Seu Tranca Rua
-
+Eu saudei Seu Tranca Rua (2x)
 # Exu Tranca Rua
-
 Eu só quero ver
-
 Quando o dia clarear
-
 Tranca Rua na encruza
-
 Só pra me ajudar
 
 Eu só quero ver
-
 Quando o dia clarear
-
 Tranca Rua curiando
 
 Só pra me ajudar
-
 Eu só quero ver
-
 Quando o dia clarear
-
 Tranca Rua trabalhando
-
 Só pra me ajudar
-
 # Exu Tranca Rua
-
-O sino da igrejinha faz belém-blém-blom
-
-O sino da igrejinha faz belém-blém-blom
+O sino da igrejinha faz belém-blém-blom (2x)
 
 Deu meia-noite, o galo já cantou
 
 Seu Tranca-Rua que é dono da gira
-
-Oi, corre, gira, que Ogum mandou
-
-Seu Tranca-Rua que é dono da gira
-
-Oi, corre, gira, que Ogum mandou
-
+Oi, corre, gira, que Ogum mandou (2x)
 # Exu Tranca Rua
-
 Quem quiser me vêr, meia-noite em ponto
-
 Na escuridão, em baixo do lampião (2x)
 
 Meu nome é Tranca-Rua, em nome de meu irmão
-
 Se quiser fazer macumba, faz aqui na minha mão
-
 Feitiço ou quisumba, bem aqui na minha mão
-
 # Exu Tranca Rua
-
-Sua Tranca Rua
-
+Seu Tranca Rua
 Me cobre com sua capa
-
 Quem tem sua capa escapa
-
 Quem tem sua capa escapa
 
 A sua capa ela é feita de verdade
-
 Ela envolve todo mundo
-
-Só não cobre a falsidade
-
+Só não envolve a falsidade
 # Exu Tranca Rua
-
-Seu Tranca Rua, dá uma volta lá fora
-
-Seu Tranca Rua, dá uma volta lá fora
+Seu Tranca Rua, dá uma volta lá fora (2x)
 
 Quem for bom bota pra dentro
-
-E quem não for deixa lá fora
-
+E quem não for deixa lá fora (2x)
 # Exu Veludo
-
 Ecoóu, ecoóu
-
-Um grito no escuro
+Um grito no escuro (2x)
 
 Tava sentado na lomba
-
-E me olhou por de traz do muro
-
-  
+E me olhou por de traz do muro (2x)
 
 De dentro do forno de sua catacumba
-
-Ele é Exu Veludo e vem mostrar sua calunga
-
+Ele é Exu Veludo e vem mostrar sua calunga (2x)
 # Exu Veludo
-
 Auê Veludo, seu cabrito deu um berro (2x)
-
 Arrebentou cerca de arame e estorou portão de ferro (2x)
-
 # Exu Meia-Noite
-
 Exu da Meia-Noite
-
 Exu da encruzilhada
-
-Saravá ao povo em Aruanda
-
+Saravá ao povo da Quimbanda
 Sem Exu não se faz nada
-
-# Pombogira Dama da Noite
-
+# Pombo Gira Dama da Noite
 A flor mais linda e cheirosa dessa noite
 
 É Pomba Gira Dama Senhora
-
-É Pomba Gira Dama da Noite
-
-É Pomba Gira Dama Senhora
-
-É Pomba Gira Dama da Noite
+É Pomba Gira Dama da Noite (2x)
 
 No clarão da lua, eu ouço o seu gargalhar
-
 Ao cair da noite, ela vem nos ajudar
-
 Com sua magia, protege os meus caminhos
-
-Nessa Pomba Gira, eu sei que posso confiar
-
+Nessa Pomba Gira, eu sei que posso confiar (2x)
 # Pombogira
-
 Dói, dói, dói, dói, dói  
-Um amor faz sofrer, dois amor faz chorar  
-Dói, dói, dói, dói, dói  
-Um amor faz sofrer, dois amor faz chorar
+Um amor faz sofrer, dois amor faz chorar (2x)  
 
 Te dei amor, te dei carinho  
-Te dei uma rosa, tirei os espinhos  
-Te dei amor, te dei carinho  
-Te dei uma rosa, tirei os espinhos
-
-Dói, dói, dói, dói, dói  
-Um amor faz sofrer, dois amor amor faz chorar  
-Dói, dói, dói, dói, dói  
-Um amor faz sofrer, dois amor amor faz chorar
-
+Te dei uma rosa, tirei os espinhos (2x)
 # Pombogira Maria Farrapo
-
 O trono dela é feito de madeira
-
-Coberto com veludo de 7 caixões
-
-  
+Coberto com veludo de 7 caixões (2x)
 
 E cada flor deixada na sua cova
-
 Ela fez sua coroa para andar na escuridão
 
 Madalena sim
-
 Farrapo pode me chamar
-
 Sou Maria Farrapo
-
-Nunca vou te abandonar
-
-  
+Nunca vou te abandonar  
 
 Lebara perigosa
-
 Atraente e vaidosa
-
 No farrapo da minha saia
-
 Têm uma cobra venenosa
 
-  
-
 Veneno de mulher
-
-Pior que cascavel
-
-  
+Pior que cascavel (2x)
 
 Ela pega o inimigo
-
 E bota no pé
-
-Farrapo é cruel
+Farrapo é cruel (2x)
 
 # Pombogira Maria Padilha
-
 Boa noite  
 Pra quem é da noite  
 Bom dia  
@@ -1007,306 +719,186 @@ Eu sou Maria
 A Pombagira
 
 # Pombogira Maria Padilha
-
 Procurei sim, dias e noites sem fim
-
-Procurei Rosa Vermelha e encontrei nesse jardim
-
-Procurei sim, dias e noites sem fim
-
-Procurei Rosa Vermelha e encontrei nesse jardim.
+Procurei Rosa Vermelha e encontrei nesse jardim (2x)
 
 Procurei por uma flor a mais bela e formosa
-
 Encontrei Rosa Vermelha divina e maravilhosa
 
 No jardim de lindas flores, encontrei linda mulher
-
 Dona Maria Padilha, linda rosa ela é
 
 Procurei sim, dias e noites sem fim
-
-Procurei Rosa Vermelha e encontrei nesse jardim
-
-Procurei sim, dias e noites sem fim .
-
-Procurei Rosa Vermelha e encontrei nesse jardim
+Procurei Rosa Vermelha e encontrei nesse jardim (2x)
 
 Procurei lá na Calunga, eu procurei lá no Cruzeiro
-
 Essa linda flor mulher procurei no mundo inteiro
 
-Hoje dentro da Umbanda, Olha gente eu encontrei
-
-Dona Maria Padilha com Tranca Rua ei ví
-
-Procurei sim, dias e noites sem fim
-
-Procurei Rosa Vermelha e encontrei nesse jardim
-
+Hoje dentro da Umbanda, olha gente eu encontrei
+Dona Maria Padilha com Tranca Rua eu vi
 # Pombogira
-
 Olha a Pomba Girê, Olha a Pomba Gira
-
 Olha a pomba-girê
-
 Olha a pomba-girá
-
-Olha a pomba-girê, olha a pomba-girê
-
-Olha a pomba-girá
-
-  
+Olha a pomba-girê
+olha a pomba-girá (2x)
 
 Pomba-gira tem sete maridos
-
 Olha a pomba-girê, olha a pomba-girá
 
 Pomba-gira da saia rodada
-
 Que bebe e que fuma na encruza fechada
 
-  
-
+Olha a Pomba Girê, Olha a Pomba Gira
 Olha a pomba-girê
-
 Olha a pomba-girá
-
-Olha a pomba-girê, olha a pomba-girê
-
-Olha a pomba-girá
-
-  
+Olha a pomba-girê
+olha a pomba-girá (2x)
 
 Pomba-gira Maria Mulambo
-
 Maria Padilha, Rainha das Almas
-
 Pomba-gira das Sete Encruzas
-
 Rainha do Lodo, Cigana falada
-
 # Pombagira do 7 Saias
-
 Clareia o sol, clareia a lua (2x)
-
 São 7 noites de luar, é ela que vai girar (2x)
-
 As 7 covas se abriram, pede licença para entrar (2x)
-
 É Pombogira 7 Saias, é ela quem vai girar (2x)
-
 É ela, é ela, é ela nas 7 noites de luar (2x)
-
 # Pombagira
-
 Beba beba beba beba  
 Beba beba beba beba  
-Na porta de um botequim
-
-Beba beba beba beba  
-Beba beba beba beba  
-Na porta de um botequim
+Na porta de um botequim (2x)
 
 Ela bebe sim  
 Ninguém tem nada com isso  
 Ela bebe o seu marafo  
 E ainda faz o seu feitiço
-
-Ela bebe sim  
-Ninguém tem nada com isso  
-Ela bebe o seu marafo  
-E ainda faz o seu feitiço
-
 # Pombagira
-
 Beleza, beleza, beleza, beleza
-
 Beleza que gira
-
-É Pombogira, é Pombogira
+É Pombogira, é Pombogira (2x)
 
 Oh dizem que é mulher de Lúcifer
-
 Pombogira aê
-
 # Pombagira Cacurucaia
-
-È no romper da meia noite 
-
-Pombo gire cacurucaia (bis)
-
+E no romper da meia noite 
+Pombo gire cacurucaia
 # Pombagira Cigana
-
 As damas, as damas
-
-Da noite vão girar
-
+Da noite vão girar (2x)
 Exu Cigana, Exu que vai chegar
-
 # Pombagira Cigana das Almas
-
 Cigana das Almas
-
-Chegou para firmar a gira
+Chegou para firmar a gira (2x)
 
 Ela girando com seu 7 Caveiras
-
 # Pombagira Cigana
-
 Quando ouvi, pela primeira vez
-
 A quela gargalhada
-
 Achei uma coisa tão linda
-
 Senti, uma força cigana
 
 Olhando no meio da roda
-
 Tava lá, uma Cigana formosa
-
-Ela é a Cigana formosa
-
-Cigana Rosa
-
+Ela é a Cigana formosa, Cigana Rosa
 # Pombagira da Figueira
-
 Foi numa estrada velha
-
 Na subida de uma serra
-
 Numa noite de luar
 
 De luar, de luar
-
 Pombogira da Figueira
-
 Moça bela e faceira
-
 Dava o seu gargalhar
-
 Por que, ela é Mojumba, ela mojuba
-
 # Pombagira do Cruzeiro
-
 Eu vi uma linda mulher
-
 (linda eu vi)
-
 Lá no cruzeiro a girar
-
 (linda mulher) (2x)
 
 O teu olhar, o teu sorriso
-
 É o que me faz enfeitiçar (2x)
 
 Eu vou chamar por você
-
 (Eu vou chamar)
 
 Depois que a lua subir
-
 (Eu vou chamar) (2x)
 
 É Pombogira do Cruzeiro
-
 Trago essa rosa para te ofertar (2x)
-
 # Pombagira Farrapo
-
 Na casa da farrapo, tem uma caveira
-
-Para mostrar que ela não é de brincadeira
+Para mostrar que ela não é de brincadeira (2x)
 
 E também tem uma tesoura que o diabo deixou
-
-Pra cortar lingua de falador
+Pra cortar língua de falador
 
 Fala, fala, faladeira
-
 Quer falar da minha vida
-
 Fala logo a vida inteira
-
 # Pombagira Maria Mulambê
-
 A capa encarnada que eu mandei fazer
-
-Não era pra Exu é pra Maria Mulambê
+Não era pra Exu é pra Maria Mulambê (2x)
 
 Maria Mulambo você não é brincadeira
-
 Maria Mulambo você mora lixeira
-
 Maria Mulambo você não é brincadeira
-
 Maria Mulambo você mora na ladeira
-
 # Pombagira Maria Mulambo
-
-Como brilha o sol, como brilha a lua
-
+Como brilha o sol, como brilha a lua (2x)
 Como brilha a saia dela
-
-No meio da rua
-
+No meio da rua (2x)
 Saia de setim, enfeitada com lamê
-
-Maria Mulambo vim aqui só pra tê ver
-
+Maria Mulambo vim aqui só pra tê ver (2x)
 # Pombagira Maria Mulambo
-
 Do trapo, do pó ela é Mulô
-
-Na boca do lixo ela é farrapo só
+Na boca do lixo ela é farrapo só (2x)
 
 Ela faz mandinga com veneno de sapo
-
 Essa mulher é o verdadeiro diabo
 
 No seu calderão ela bota pra ferver
-
 Com sangue de galo e azeite de dendê
 
 Pimenta malagueta com pelo de rato
-
-Asa de morcego e rabo de galo
+Asa de morcego e rabo de galo (2x)
 
 Amigo escute o que vou te dizer
-
 Se não pagar o meu feitiço
-
 Ele vai é pra você
-
 # Pombagira Maria Mulambo e Maria Padilha
-
 É uma rosa que encontrei na encruzilhada
-
-É uma rosa que plantei no meu jardim
+É uma rosa que plantei no meu jardim (2x)
 
 Maria Mulambo, Maria mulher
-
-Maria Padilha raina de luz e fé
-
+Maria Padilha rainha de luz e fé
 # Pombagira Maria Mulambo
-
 É mal de amor  
 É mal de amor  
-Maria bebe﻿ todas pra curar a minha dor X2
+Maria bebe﻿ todas pra curar a minha dor (2x)
 
 Mulambo me tira da solidão  
-Vou te levar pra casa pra ganhar teu coração x2
+Vou te levar pra casa pra ganhar teu coração (2x)
 
 É mal de amor  
 É mal de amor  
-Maria bebe todas pra curar a minha dor
+Maria bebe todas pra curar a minha dor (2x)
 
 Amanheceu e ela vai pra casa  
-Toda embriagada por causa do amor x2
-
+Toda embriagada por causa do amor (2x)
 # Pombagira Maria Mulambo
+Foi numa noite de luar
+Que eu encontrei na encruza, uma moça a trabalhar (2x)
+
+Me deu boa noite, disse:  
+Moço não se engana
+Eu sou pomba gira, poucos conhecem minha fama
+Muitos já tentaram jogar o meu nome na lama
+
+Hoje na calunga conhecem mulambo de fama! (2x)
 
 Foi numa noite de luar.  
 Que eu encontrei na encruza, uma moça a trabalhar.
@@ -1315,735 +907,377 @@ Foi numa noite de luar.
 Que eu encontrei na encruza, uma moça a trabalhar.
 
 Me deu boa noite, disse:  
-Moço não se engana.  
-Eu sou pomba gira, poucos conhecem minha fama.  
-Muitos já tentaram jogar o meu nome na lama.  
-Hoje na calunga conhecem mulambo de fama!”
+Moço não se engana
+Eu sou pomba gira, poucos conhecem minha fama
 
-Foi numa noite de luar.  
-Que eu encontrei na encruza, uma moça a trabalhar.
-
-Foi numa noite de luar.  
-Que eu encontrei na encruza, uma moça a trabalhar.
-
-Me deu boa noite, disse:  
-Moço não se engana.  
-Eu sou pomba gira, poucos conhecem minha fama.
-
-Venho da calunga.  
-Trabalhar na encruzilhada.  
-Beber meu marafo, fumar meu cigarro,  
-Dar minha gargalhada.
-
-Beber meu marafo, fumar meu cigarro,  
-Dar minha gargalhada.
-
+Venho da calunga
+Trabalhar na encruzilhada  
+Beber meu marafo, fumar meu cigarro  
+Dar minha gargalhada (2x)
 # Pombagira Maria Mulambo
-
 Lá vem ela Oh, caminhado pela rua
-
 Lá vem a Maria Mulambo, com Tiriri, Marabô e Tranca-rua (2x)
 
 Oh que noite tão bonita, como brilha o luar
-
 Abram alas minha gente que a Mulambo vai chegar
 
 Canta um ponto bem bonito que a Mulambo vai dançar
-
 O trabalho dessa moça faz a Umbanda admirar
 
 Lá vem ela Oh, caminhado pela rua
-
 Lá vem a Maria Mulambo, com Tiriri, Marabô e Tranca-rua (2x)
 
 A lua brilhava, Tiriri bebia, Tranca-rua cantava, Marabô sorria
-
 São todos Exus de fé, saravá Maria Mulambo e todo Exu que aqui vier
-
-Lá vem ela Oh, caminhado pela rua
-
-Lá vem a Maria Mulambo, com Tiriri, Marabô e Tranca-rua (2x)
-
 # Pombagira Maria Mulambo
-
 Macumbeira da noite
-
 O terreiro te chama (4x)
 
-Teu calderão têm feitiço
-
+Teu caldeirão têm feitiço
 Com veneno de Víbora Mamba (4x)
 
 Com tua vassoura de trapo
-
 Ela vêm varrendo egun (4x)
 
-Disfazendo magia braba
-
+Desfazendo magia braba
 Girando com povo de Exu (4x)
 
 É Mulambo que gira no lixo
-
 Ela não da ponto sem nó (4x)
 
-Só vai descançar se o inimigo
-
+Só vai descansar se o inimigo
 Vim rastejando no pó (4x)
 
 É como o veneno da cobra
-
 A mulambo é danada, é tirana (4x)
 
 Ela têm o poder da magia
-
 Ela não rejeita demanda (8x)
 
 Macumbeira da noite
-
 O terreiro te chama (4x)
 
 Teu calderão têm feitiço
-
 Com veneno de Víbora Mamba (4x)
-
 # Pombogira Maria Mulambo
-
 Maria Mulambo, bota fogo e arrebenta
-
 Ela faz a roda grande mas passa dentro da pequena
 
-Bruxa maldita que nasceu na encruzilhada
-
+Bruxa maldita que nasceu no cemitério
 Quando o sino tocava dando 7 badaladas
-
-Maria Mulambo aparecia dando sua gargalhada
+Maria Mulambo surgia dando sua gargalhada
 
 Ouvi chorar, ouvi gritar, ouvi gemer
-
-Era Maria Mulambo fazendo a terra tremer
+Era Maria Mulambo fazendo a terra tremer (2x)
 
 # Pombogira Maria Mulambo
-
 Eu arridei, num cruzeiro fechado
-
 Com 7 garrafas de mafaro e 7 maços de cigarro
-
 Galinha preta, farofa e dendê
-
 Buque de flor de defundo, pé de pimenta e um padê
 
 Veio a Mulambo com sua vassoura de trapo
-
-Mexendo um calderão, fervendo sangue de galo (4x)
+Mexendo um caldeirão, fervendo sangue de galo
 
 Ela é Bruxa das almas, ela é um Exu
-
 Na boca do lixo, Maria Mulambo (4x)
 
 Eu andavá fumando e bebendo Mulambo
-
 Fiquei num abando perdi a mulher que amo
-
 A Mulambo amarrou um casal de boneco no farrapo
-
 E matou 4 pé no buraco e até hoje sou grato
-
-O nome da quela bandida custurou na boca do sapo
+O nome da quela bandida costurou na boca do sapo
 
 Ela é Bruxa das almas, ela é um Exu
-
 Na boca do lixo, Maria Mulambo (4x)
-
 # Pombogira Maria Mulambo
-
 Olha a saia dela, lê lê
-
 É Mulambo só
-
 Sua saia têm 7 metros
-
 7 metros farrapo só
 
+7 metros de macumba só
+7 metros de feitiço só
+7 metros de bruxaria só
 # Pombogira Maria Mulambo
-
 Que coisa linda é a Maria Mulambo, Maria Mulambo, girando, girando
-
 Teu sorriso é tão lindo, teu olha é profundo, Maria Mulambo
 
 Vêm aqui me da um abraço, me dá teu calor e me tira o feitiço
-
 Vêm aqui me da um abraço, me dá teu calor e me enfeitiça
 
 Ela é Maria Mulambo, Maria Mulambo, girando, girando
-
 # Pombogira Maria Mulambo
+Se a sua catacumba têm mistério
+Ela é Pombogira do cemitério (2x)
 
-Se a sua catacumba têm mistério, mas ela é Pombogira do cemitério (2x)
-
-Mas ela é loira, do olho azul ela é Mulambo filha de seu Omolú (2x)
-
+Mas ela é loira, do olho azul
+Ela é Mulambo filha de seu Omolú (2x)
 # Pombogira Maria Mulambo
-
 Se um dia encontrar um farrapo, no meio de uma encruzilhada
 
-Não mexa, por que tem dona, é da Mulambo rainha da madrugada
+Não mexa, por que tem dona, é da Mulambo rainha da madrugada (2x)
 
 Ela gira na lixeira, cuidado com essa mulher
-
 Ela é Mulambo, é feiticeira
-
 É Pombogira, Pombogira faceira.
-
 # Mulambo
-
 A Maria do beco, do trapo e do pó
-
 Ela é Muló, ela é Muló (4x)
 
 Chegou a sua hora e pra ela vou cantar
-
 Vamos saudar a Maria de Caiá, Caiá (4x)
 
 A Maria do beco, do trapo e do pó
-
 Ela é Muló, ela é Muló (4x)
 
 Com sua coroa de lata, vem pro terreiro Maria
-
 Coroa que brilha na noite, coroa que brilha no dia (4x)
 
 Traz a sua corte, pra curimba levantar
-
 Festa de Maria não tem hora pra acabar (4x)
 
 A Maria do beco, do trapo e do pó
-
 Ela é Muló, ela é Muló (4x)
 
 Ela vive girando, na boca do lixo
-
 Dona da magia, dona do feitiço (4x)
 
 A Maria do beco, do trapo e do pó
-
 Ela é Muló, ela é Muló (4x)
 
 # Pombogira Maria Mulambo
-
 Eu te avisei, que ela era Muló, Muló!
-
 Mas você duvidou, agora segura B.O. (4x)
 
 Larga de mão essa bruxa, deixa o feitiço fluir
-
 Não se atravesse com ela, tu vai toma galo é melhor desistir (4x)
-
 # Pombogira Maria Mulambo (Subida)
-
 Já deu a minha hora, até um dia moço
-
-As almas do meu lixo me esperam eu já vou (2x)
+As almas da calunga me esperam eu já vou (2x)
 
 Se a saudade apertar é só chamar por mim
-
 Essa alma de Mulambo que passou por aqui (2x)
 
 Eu sou a Maria Mulambê
-
 Coroa de lata que brila como sol (4x)
 
 Sou Maria que trabalha no além
-
-O segredo do feitiço a ninguém (2x)
+O segredo do feitiço eu não ensino ninguém (2x)
 
 Me pergunte, meu bem, eu não ensino ninguém
-
 O segredo do feitiço eu não ensino ninguém (2x)
 
 Não vêm que não têm que eu não ensino ninguém
-
-O segredo do feitiço eu não ensino ninguém (2x)
-
+# Pombogira Maria Mulambo
 Babado novo que vou cantar
-
 Exu Mulambo que passou nos amar (4x)
 
 É Muló, Muló, Muló, Muló, Muló, Muló
-
 Oh Abassé Muló (4x)
-
-Babado novo que vou cantar
-
-Exu Mulambo que passou nos amar (4x)
-
-É Muló, Muló, Muló, Muló, Muló, Muló
-
-Oh Abassé Muló (4x)
-
 # Pombogira Maria Padilha
-
 Abre essa cova eu quero ver tremer
-
-Abre essa cova quero ver balancear
+Abre essa cova quero ver balancear (2x)
 
 Maria Padilha das Almas
-
 O cemitério é o seu lugar
 
 É no buraco que a Padilha mora
-
-É lá na lomba que a padilha vai girar
-
+É lá na lomba que a padilha vai girar (2x)
 # Pombogira Maria Padilha
-
 Com uma rosa e cigarrilha
-
 Maria Padilha já chegou
-
 Ela trabalha na Calunga
-
 Ela trabalha com muito amor
-
 7 cruzeiros e na Calunga
-
 É a morada desta mulher
-
 Mas ela é Maria Padilha
-
 Pombogira de fé
-
 # Pombogira Maria Padilha
-
 Exu é Maria Padilha
-
-Mulher da mafia mulher
-
+Mulher da mafia
 Mulher de Lúcifer
 
 Ela gira na noite escura
-
 Faz feitiço na ponta de seu garfo
-
 De baixo de seus pés
 
 Lhe chamam de leviana
-
 E ao mesmo tempo mulher do cabaré
 
-Mas a lingua deste povo não têm osso
-
-Deixa esse povo falar
-
+Mas a língua deste povo não têm osso
+Deixa esse povo falar (2x)
 # Pombogira Maria Padilha
-
 Padilha na mesa de um bar
-
 Pra beber e cantar
-
 E viver de alegria
 
 Padilha mulher encantada
-
 Rainha da encruzilhada
-
 Senhora da magia
-
 # Pombogira Maria Padilha
-
 Salve Maria Padilha
-
 Salve Maria Padilha
-
 Salve Maria Padilha, que ilumina o meu caminhar
 
-  
-
 Perambulava pelas ruas já sem saber o que fazer
-
-Procurava na noite uma solução para tanta dor
-
-Sofrimento e solidão
-
-  
+Procurava na noite uma solução
+Pra tanta dor, sofrimento e solidão
 
 Então eu clamei ao povo da rua
-
-Que me enviasse, no momento, alguma ajuda, pois eu já não tinha
-
-Força para continuar
-
-  
-
-Então eu clamei ao povo da rua
-
-Que me enviasse, no momento, alguma ajuda, pois eu já não tinha
-
-Força para continuar
-
-  
+Que me enviasse, no momento, alguma ajuda
+Pois eu já não tinha, força para continuar (2x)
 
 Quando me virei vi uma mulher na beira da estrada
-
 Trazia uma rosa em suas mão, um feitiço no olhar
-
 Naquela bela noite de luar, deslumbrei sua dança
-
 Com sua saia a rodar, eu me aproximei
-
 E lhe perguntei o que ela fazia na estrada
-
-  
-
 Ela respondeu: Moço eu sou Rainha, vim lhe ajudar
 
 Sou Maria Padilha
 
-Ela respondeu: Moço eu sou Rainha, vim lhe ajudar
-
-Sou Maria Padilha
-
-  
-
-Salve Maria Padilha
-
-Salve Maria Padilha
-
-Salve Maria Padilha
-
-Salve Maria Padilha
-
-  
-
+Salve Maria Padilha (4x)
 Quando eu precisei, oh pomba gira, você veio me ajudar
-
 Deste outro rumo a minha vida
-
 Hoje eu venho lhe louvar
 
-  
-
-Salve Maria Padilha
-
-Salve Maria Padilha
-
-Salve Maria Padilha
-
-Salve Maria Padilha
-
-  
-
-Quando eu precisei, oh pomba gira, você veio me ajudar
-
-Deste outro rumo a minha vida
-
-Hoje eu venho lhe louvar
-
-  
-
-Perambulava pelas ruas já sem saber o que fazer
-
-Procurava na noite uma solução para tanta dor
-
-Sofrimento e solidão
-
-  
-
-Então eu clamei ao povo da rua
-
-Que me enviasse, no momento, alguma ajuda, pois eu já não tinha
-
-Força para continuar
-
-  
-
-Então eu clamei ao povo da rua
-
-Que me enviasse, no momento, alguma ajuda, pois eu já não tinha
-
-Força para continuar
-
-  
-
-Quando me virei vi uma mulher na beira da estrada
-
-Trazia uma rosa em suas mão, um feitiço no olhar
-
-Naquela bela noite de luar, deslumbrei sua dança
-
-Com sua saia a rodar, eu me aproximei
-
-E lhe perguntei o que ela fazia na estrada
-
-  
-
-Ela respondeu: Moço eu sou Rainha, vim lhe ajudar
-
-Sou Maria Padilha
-
-Ela respondeu: Moço eu sou Rainha, vim lhe ajudar
-
-Sou Maria Padilha
-
-  
-
-Salve Maria Padilha
-
-Salve Maria Padilha
-
-Salve Maria Padilha
-
-Salve Maria Padilha
-
-  
-
-Quando eu precisei, oh pomba gira, você veio me ajudar
-
-Deste outro rumo a minha vida
-
-Hoje eu venho lhe louvar
-
-  
-
-Salve Maria Padilha
-
-Salve Maria Padilha
-
-Salve Maria Padilha
-
-Salve Maria Padilha
-
-  
-
-Quando eu precisei, oh pomba gira, você veio me ajudar
-
-Deste outro rumo a minha vida
-
-Hoje eu venho lhe louvar
-
+Salve Maria Padilha (4x)
 # Pombogira Maria Padilha
-
 Qui, qui, qui, qui, qui
-
-Qui, qui, Quitéria
+Qui, qui,  qui, Quitéria
 
 Ela trabalha nas Almas
-
 Ela trabalha no inferno
-
 No porta da calunga
-
-Nos 7 cruzeiros
-
+Nos 7 cruzeiros (2x)
 # Pombogira Menina
-
 O teu vestido é o mais rodado
-
 Tua bebida não é tão cara
-
 Sabem de quem estou falando
-
-Ela é morena da praia
+Ela é Menina da Praia
 
 E quando precisar dela
-
 Sabem onde encontrar
-
 Ela vai estar na praia esperando teu homem chegar
-
 Ele se foi e nunca mais voltou
-
 Só deixou saudades, saudades desse teu amor
 
-  
-
 Numa noite linda fui à beira da praia
-
-Pra morena da praia flores fui levar
+A Menina da Praia flores fui levar (2x)
 
 O mar estava calmo, eu senti
-
 Seu perfume ao vento
-
-E firmei meu pensamento
-
+Em meu pensamento
 E pude ouvir o seu cantar
 
 Pombagira da praia que mexe
-
 E balança a saia
 
 Te trago essa oferenda para lhe ofertar
-
 Seu sorriso é tão belo
-
 E nele só há verdade
-
 Oh, Pombagira me livra de toda maldade
 
 Cadê seu olhar feitiço?
-
 Cadê seu balanceado?
+Cadê a Menina da Praia que vai gargalhar, la la laia? (2x) (2x)
 
-Cadê a morena da praia que vai gargalhar?
-
-Morena da praia
-
+Menina da Praia
 Tira teus olhos do mar
 
 Espera morena espera
-
 Que seu homem vai voltar
 
 Ele foi pra bem longe
+Ele foi navegar (2x)
 
-Ele foi navegar
-
-Mas um dia ele volta morena
-
+Mas um dia ele volta Menina
 Volta pra te buscar
 
-  
-  
-
 De tanto lamentar,
-
-Seu lamento ecoou!
+Seu lamento ecoou! (2x)
 
 No canto do marujo,
-
 Que a Morena da Praia se apaixonou
-
 # Pombogira Menina
-
 Olha Menina linda
-
 Olha Menina bela
-
 Olha que Menina linda
-
-Me olhando da janela
+Me olhando da janela (2x)
 
 Gira Menina, gira
-
 Gira que eu quero ver
-
 Gira Menina, gira
-
 Que Exu não têm querer
 
 # Pombogira
-
 Moça bonita, moça faceira
-
-É Pombogira ela é guerreira
+É Pombogira ela é guerreira (2x)
 
 Ela trabalha na encruzilhada
-
 De madrugada, de madrugada
-
 # Pombogira
-
 Na encruzilhada do cemitério
-
-Eu ví uma farofa amarela
+Eu vi uma farofa amarela
 
 Quem não acredita na Pombogira
-
-Vai lá na encruza e pergunte a ela
+Vai lá na encruza e pergunte a ela (2x)
 
 # Pombogira Raina do Oriente
-
-Quando olhei para o Oriente eu ví
-
-Uma beleza de espantar
+Quando olhei para o Oriente eu vi
+Uma beleza de espantar (2x)
 
 Só chegando mais perto
+Então eu pude avistar (2x)
 
-Então eu pude avistar
-
-Era Gira Rainha e seu 7
-
-7 da Lira a trabalhar
-
-  
+Era Gira Rainha e seu Sete
+Sete da Lira a trabalhar (2x)
 
 Nesse casal do Oriente
-
-Eu começei a acreditar
+Eu comecei a acreditar (2x)
 
 Pombogira Rainha do Oriente
-
-Vai me dar o que eu vim buscar
-
-  
-  
-
+Vai me dar o que eu vim buscar (2x)
 # Pombogira Maria Mulambo
+A macumba no caldeirão tá borbulhando
+Eu vi Tatá Mulambo fazer macumba gargalhando (4x)
 
-A macumba no calderão tá borbulhando
-
-Eu ví Tatá Mulambo fazer macumba gargalhando (4x)
-
-Eu ví essa Bruxa fazer a contecer
-
+Eu vi essa Bruxa fazer acontecer
 Com sangue de galo e azeite de dendê (4x)
 
-A macumba no calderão tá borbulhando
+A macumba no caldeirão tá borbulhando
+Eu vi Tatá Mulambo fazer macumba gargalhando (4x)
 
-Eu ví Tatá Mulambo fazer macumba gargalhando (4x)
-
-No calderão ela sabe o que fazer
-
+No caldeirão ela sabe o que fazer
 Não mexa com ela, se não sobra pra você (4x)
 
-A macumba no calderão tá borbulhando
-
-Eu ví Tatá Mulambo fazer macumba gargalhando (4x)
+A macumba no caldirão tá borbulhando
+Eu vi Tatá Mulambo fazer macumba gargalhando (4x)
 
 Se tu que feitiço e pagar pra ver
-
 Se tu não pagar ela e vai é pra você (4x)
 
-A macumba no calderão tá borbulhando
-
-Eu ví Tatá Mulambo fazer macumba gargalhando (4x)
+A macumba no caldeirão tá borbulhando
+Eu vi Tatá Mulambo fazer macumba gargalhando (4x)
 
 Mas o seu nome, pode tá nessa mistura
-
 Não mexa com ela, pois não conhece a criatura (4x)
-
-A macumba no calderão tá borbulhando
-
-Eu ví Tatá Mulambo fazer macumba gargalhando (4x)
-
 # Quitéria
-
 Era noite de luar, eu vi uma mulher na calunga a girar (2x)
-
 Ela girava na linha de Exu, lá na calunga com mestre Omolú (2x)
 
-Traz uma adaga na boca e uma navalha na mão (2x)
+Traz uma adaga na boca e uma navalha na mão
 
 Lá na calunga do inferno ela é alteza
+E aqui na terra ela vêm trazer riqueza (2x)
 
-E aqui na terra ela vêm trazar riqueza (2x)
-
-Oh Oh laiá, toque esse tambor que a quitéria vai chagar (4x)
-
+Oh Oh laiá, toque esse tambor que a Quitéria vai chagar (4x)
 # Pombogira
-
-Efereci uma champanhe pra ela
-
+Ofereci uma champanhe pra ela
 Com 7 rosas e 7 velas (2x)
-
 Faz tanto tempo que não lembro mais
-
 Aonde é a sepultura dela (2x)
-
-# Pombogira
-
-Passei no cemitério e ví uma cova aberta… (finalizar)
-
   
   
   
