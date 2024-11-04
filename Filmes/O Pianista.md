@@ -1,0 +1,4 @@
+# O Pianista
+Levando em consideração o personagem construído e não a pessoa na qual serviu de inspiração para o filme...
+
+Existem coisas na vida que podem nos elevar a um patamar mental mais alto de consciência. A música têm este poder e é o que o Wladyslaw Szpilman fez, manteve sua mente com um foco nela, ou neste caso mais especifico, no piano. Quando o alemão que ajuda ele no final pergunta "O que você vai fazer depois disso tudo?" ele responde "Tocar piano na rádio", ele não se deixou vencer pelo medo, pela raiva, etc, que estava aos montes na quele momento. Mesmo passando por tudo o que passou manteve sua mente em foco na quilo que é mais sutil, mais belo.

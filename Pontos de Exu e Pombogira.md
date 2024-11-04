@@ -1,4 +1,3 @@
-
 # Pontos de Exu e Pombo-Gira
 ## Exu Sete Catacumbas
 No corredor do cemitério

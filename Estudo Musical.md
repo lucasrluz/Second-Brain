@@ -2,7 +2,7 @@
 ## Notas Musicais
 No total são 12 notas, 7 naturais e 5 acidentais.
 
-Da mais grave a mais aguta:
+Da mais grave a mais aguda:
 
 | Dó  | Dó#<br>Ré b | Ré  | Ré#<br>Mí b | Mí  | Fá  | Fá#<br>Sol b | Sol | Sol#<br>Lá b | Lá  | Lá#<br>Sí b | Sí  |
 | --- | ----------- | --- | ----------- | --- | --- | ------------ | --- | ------------ | --- | ----------- | --- |

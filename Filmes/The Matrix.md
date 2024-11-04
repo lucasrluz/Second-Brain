@@ -1,4 +1,3 @@
-
 # The Matrix
 ## O Filme
 O que me marcou no filme foi:
@@ -6,8 +5,7 @@ O que me marcou no filme foi:
 * As transições entre cenas.
 * O enquadramento das cenas e a movimentação de câmera.
 * Cores e montagem da cena.
-* As falas
-
+* Diálogos
 ## O Principal Conceito do Filme
 O Neo é nos apresentado com um personagem que procura saber a verdade, ele não sabe o que de fato é mas sabe que existe algo a mais, algo que ele não consegue ver. Neo é apresentado com um Buscador da Verdade.
 
