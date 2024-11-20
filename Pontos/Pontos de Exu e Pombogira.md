@@ -1,4 +1,320 @@
 # Pontos de Exu e Pombo-Gira
+
+## Pombo-Gira Rainha das 7 Encruzilhadas
+Calada da noite, alta madrugada
+Não vejo as estrelas nem o brilho do luar (2x)
+
+Só vejo ao longe uma coroa iluminar
+Na encruzilhada e um povo a girar (2x)
+
+Trabalha povo da madrugada
+Que não se importa se é de noite ou de dia (2x)
+
+Abre essa roda que ela vai girar
+Linda, bela e radiante, Alupandê Gira Rainha (2x)
+
+Faz babado forte Rainha, que eu quero ver
+Traz teu povo do cruzeiro, faz acontecer (2x)
+
+Numa encruza de terra, seu reino construiu
+No meio da rua ela fez sua morada (2x)
+
+Seu Maioral deu nome e coroou
+Pombo-Gira Rainha das 7 Encruzilhadas (2x)
+
+Faz babado forte Rainha, que eu quero ver
+Traz teu povo do cruzeiro, faz acontecer (2x)
+## Pombo-Gira
+Uma casinha de pombo, uma casinha de pombo da pra dois morar
+Eu e você, você e eu
+
+## Pombo-Gira da Calunga
+Da calunga pequena vem pra trabalhar
+Cruz e credo seu moço, essa mulher é de lá (2x)
+
+A sua alma vem do mundo das sombras
+Sua coroa ilumina a escuridão (2x)
+
+Sua gargalhada ecoa madrugada
+Majestade da calunga é rainha das almas (2x)
+
+Balança cemitério, balança cemitério
+Rainha da calunga, rainha do império
+Balança cemitério, balança cemitério
+Rainha das almas, rainha do império (2x)
+
+Quando ela pisa no terreiro
+Não perde a viagem não têm tempo para besteira (2x)
+
+Alteza de Belzebu
+Seu feitiço é muito forte não é brincadeira (2x)
+
+Balança cemitério, balança cemitério
+Rainha da calunga, rainha do império
+Balança cemitério, balança cemitério
+Rainha das almas, rainha do império (2x)
+
+## Exu Caveira
+Ele vem de baixo, vem da terra negra
+Escura alma cheia de mistérios (2x)
+
+Sua morada e nas costas da lomba
+De traz da cruz das almas no fundo do cemitério (2x)
+
+Têm estalo de osso ecoando lá na porteira
+No meio do cemitério na baxada da ladeira (2x)
+
+Firma ponto meu mestre Caveira
+Trabalhando com as almas na Calunga pequena (2x)
+
+Moço Caveira, Caveira moço
+Teu esqueleto cor e osso (2x)
+
+Moço eu vi um coveiro, coveiro só
+Atras da cruz das almas, abriu catacumba (2x)
+
+Tem velório, enterro no campo santo
+Mais um corpo velado vai pra cova funda (2x)
+
+Se têm velório, têm festa pra almas
+Exu Caveira da risada com as almas (2x)
+
+Têm cheiro de defunto
+Levantando Caveira do chão (2x)
+
+Alma que desencarna é festa pra legião (2x)
+## Exu do Lodo
+Escorreguei na lama
+Exu do lodo apareceu (4x)
+
+Só de te encontrar amigo
+O prazer é todo meu (4x)
+
+Ele vem da lama
+Ele vem da mata escura (4x)
+
+Vem levantar macumba
+Vem levantar macumba (4x)
+
+Ele gira na encruza, mato, praia e na calunga (4x)
+
+Vêm levantar macumba
+Vêm levantar macumba (4x) (2x)
+
+Firma cabala no terreiro
+Sua magia vêm do povo mandingueiro (4x)
+
+Exu Lodo tá no mundo, Pombo-Gira quero ver
+Só quem tem bala na agulha gira até o amanhecer (4x)
+
+## Pombo-Gira do Forno
+Espirito do fogo, fornalha a queimar
+Na boca do crematório eu vi suas 9 caveira (2x)
+
+Suas oferendas eu ariei
+9 velas pretas eu acendi
+A Sra. dona da boca do forno
+Cemitério incendiou e levantou labareda (2x)
+
+E lá no meio do fogo, uma alma pra mim sorriu (4x)
+É Pombo-Gira do Forno que nesta gira surgiu (4x)
+
+De uma faísca queimando, fogo iluminou, clareou (4x)
+Para esquentar o Sabá a Gira do Forno chegou (8x)
+
+Com seu Capa Preta da risada, ela domina a chama do fogo
+E no desespero egun chora, vendo as cinzas que caem do seu corpo
+Ouso o murmurio da almas, ecoando de dentro do fogo
+
+E seu Capa Preta sorrindo pelos 4 cantos do forno (4x)
+
+Firma a curimba Ogâ que é pra saudar a mulher (4x)
+
+Queima carne, torra osso, assista quem poder (6x)
+
+Ela é Pombo-Gira mandiguera que dança dentro do forno (2x)
+Ela faz a sua macumba girando no meio do fogo (2x)
+
+Incendiando defunto, gargalhando com todo seu povo (4x)
+
+Firma a curimba Ogâ que é pra saudar a mulher (4x)
+Queima carne, torra osso, assista quem poder (6x)
+## Exu Destranca Rua
+Eu saravei as almas no cruzeiro
+Pra ver Destranca curimba neste terreiro (4x)
+
+Eu te chamei, como eu te chamei
+Na madrugada, só eu e a lua (4x)
+
+Pisa forte no chão, deixa a curimba segura
+Vem girar com seu povo Exu Destranca Rua (4x)
+## Exu João Caveira
+Eu vi um homem gargalhando na porteira
+O nome do defunto é João Caveira (4x)
+
+João Caveira está estalando osso
+Só porque hoje tem velório na calunga (4x)
+
+Se tem carne fresca, tem na sepultura
+Ele sai da porteira e vai correndo para a tumba (4x)
+
+Estala osso seu João Caveira
+Tem sabá dos mortos na calunga pequena (4x)
+## Exu 7 Risadas
+Ri qua qua qua
+Que linda risada que Exu vai dar (2x)
+Que linda risada que Exu vai dar
+Que linda risada é de qua qua qua
+## Exu da Meia-Noite
+Exu da Meia-Noite
+Exu da encruzilhada
+Salve o povo de Quimbanda
+Sem Exu não se faz nada
+## Exu
+Lá no morro sim, é lugar de tirar onda (2x)
+É lugar de tirar oda, jogar baralho e fumar uma coisa (2x)
+## Exu Tranca Rua
+Tava dormindo, curimba me chamou
+Levanta minha gente, Tranca Rua já chegou 
+## Exu Veludo
+Dizem que eu não valho nada
+Mas eu posso com tudo (2x)
+E nas 7 encruzilhadas
+Ele é Exu Veludo (2x)
+## Exu Veludo
+Auê Veludo, teu cabrito deu um berro (2x)
+Rebentou cerca de arame
+Estourou portão de ferro
+## Pombo-Gira da Praia
+Luar brilhou na beira da praia
+Quando eu vi uma mulher gargalhar (4x)
+
+Ela girou, riscou ponto na areia
+Gira da praia acabou de chegar (4x)
+
+Ela que gira na beira da praia
+Também responde no fundo do mar (4x)
+
+Alma que surge no embalo das ondas
+Firma seu ponto quando tem luar (4x)
+
+E no encanto da lua morena
+Trás o mistério povo do mar (4x)
+
+Eu te saúdo Gira da Praia
+Quando eu escuto a sereia cantar (4x)
+
+Saudei Pombo-Gira da Praia, Ooooh
+Saudei todo povo que veio de lá, Ooooh (2x)
+
+Amigo que é do mar não enjoa
+Respeite, respeite quem vem da calunga maior (2x)
+## Exu Lúcifer
+A porta do inferno estremeceu
+O povo foi para ver que é (2x)
+
+Ouvi uma gargalhada na encruza
+É a Pombo-Gira e o compadre Lúcifer (2x)
+## Exu Cobra
+Exu chegou virado no diabo
+Pra deixar inimigo trancado e amarrado (2x)
+
+O Portão do inferno se abriu, e eu vi um ser a rastejar
+
+Alupandê, Coto shuya, Exu Cobra vai chegar (2x)
+
+Seu veneno corta a demanda
+Seu veneno é curador
+Sou muito grato a esse Exu
+Que me protege do desamor
+
+A Clareira do inferno se abriu, e eu vi uma cobra a piar
+
+Alupandê, Coto shuya, pombo gira serpente vai chegar (2x)
+Chega pelo mato, chega pela água (2x)
+Saldamos agora a falange cobra (2x)
+
+Alupandê Povo Cobra (2x)
+Força que levanta me faz caminhar (2x)
+## Exu Marabô
+Capa e cartola preta, anel de ouro no dedo  
+Charuto, fumaça clara, conhaque de casta rara  
+É ele Seu Marabô  
+Trabalha com mano e mana, pisa certo iao  
+Não brinca com Marabô  
+Pisa certo iao, não brinca com Marabô  
+Pisa certo iao, não brinca com Marabô
+
+Marabô, futuro e presente  
+Marabô, presente e passado  
+Marabô, a vida da gente, em cada búzio jogado  (2x)
+
+Ah ha há, ele trabalha é protetor  
+Ah ha há, capa e bengala é Marabô   (2x)
+## Pombo-Gira Maria Mulambo
+A bruxa macumbeira chegou
+É a Maria Mulambo com as almas trabalhou (2x)
+
+Quando ela vem com sua vassoura de trapo
+Vem girando e gargalhando bebendo seu marafo
+
+Se não acredita, vem lhe conhecer
+Eu moro na Calunga, ela é Tata Mulambo
+## Pombo-Gira
+Marias oh Marias
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+---
 ## Exu Sete Catacumbas
 No corredor do cemitério
 Eu avistei Sete Catacumbas (2x)
