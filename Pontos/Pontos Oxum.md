@@ -1,7 +1,7 @@
 # Pontos de Oxum
 ## Oxum Pandá, Maré e Docô
 O lírio que dá no campo
-Da água nasce uma flor (2x)
+Na água nasce uma flor (2x)
 É a flor de Oxum Pandá
 Oxum Maré e Oxum Docô (2x)
 
@@ -42,8 +42,9 @@ Maria Imaculada, tirar a pertubação (2x)
 
 Se tiveres praga de alguém
 Desde já será retirado
+
 Lavando pro mar a dentro
-No profundo do mar sagrado (2x)
+Profundo do mar sagrado (2x)
 ## Oxum Mariô
 Ooh Oxum Mariô (4x)
 
@@ -110,100 +111,13 @@ Por tudo agradeço a mãe Oxum, Oxum
 Água doce Oraieie Oxum
 Doce mel de amor
 É meu bem maior
-Cachoeira oh linda Mãe, eu sou filho teu
+Cachoeira oh linda Mãe, eu sou filho seu
 Eu me entrego a ti
 Ouro da minha vida
 Minha Mãe querida
 Linda bela flor
 
 Hummm Oxum  (8x)
-
-Água doce Oraieeô Oxum
-Doce mel de amor Oooo
-É meu bem maior Oooo
-Cachoeira o linda mãe, eu sou filho teu
-Eu me entregoa a ti oooo
-Ouro da minha vida oooo
-Minha Mãe querida
-Linda bela flor
-Água doce Oraeieeô Oxummm
-
-## Oxum
-Aie ieô
-Ora ie ieô
-Aie ieô
-Hoje eu venho me banhar
-Para me abençoar 
-Ora ie ieô
-
-Quando a dor nos pega forte e lancinante 
-E as lágrimas percorrem meu semblante 
-A ti rogo minha mãe 
-Abençoe os seus filhos
-Faça com que essa dor pare num instante 
-
-Se minhas dúvidas alteram o caminhar 
-Nas suas águas vou para me encontrar
-Sinto de volta a vida
-São lavadas as feridas
-E começo a sentir meu corpo renovar
-
-Aie ieô
-Ora ie ieô
-Aie ieô
-Hoje eu venho me banhar 
-Para me abençoar 
-Ora ie ieô
-
-Ao manter-me no aconchego do teu rio
-Águas límpidas que nos remetem ao frio
-Nos seus braços eu me entrego
-Sinto todo o amor
-E num momento de energia vem o seu calor
-
-Com a  certeza de ter a fé renovada
-E nada mais atrapalhar a caminhada 
-Já não existe as feridas
-Já não há mais mal algum
-E com toda a minha força 
-Eu canto para Oxum
-
-Aie ieô 
-Ora ie ieô
-Aie ieô
-Hoje eu venho me banhar
-Para me abençoar 
-Ora ie ieô.
-
-## Oxum
-Meus pensamentos 
-Vem do coração e vibra
-Em pensamentos
-Vou tentando lhe dizer
-
-Nossa Senhora 
-Minha mãe Aparecida
-Guarda a minha vida e protege o meu viver
-
-Dos olhos maus, das invejas e da cobiça.
-Das entrigas, violências e doenças.
-Dos pensamentos que trazem desarmonia
-Esses pensamentos tão difíceis de não ter.
-
-Pensando em Vós ilumino a minha vida 
-Ô mãe querida  
-Ilumina meu viver
-
-Nossa Senhora
-Minha mãe Aparecida
-Guarda a minha vida
-E protege meu viver
-
-Nossa Senhora
-Minha mãe Aparecida
-Mãe da minha vida 
-Mãe de todo o meu viver
-
 ## Oxum
 E não há maior tesouro
 Do que ver Oxum bailar
@@ -308,6 +222,81 @@ Abadô yeyeô
 
 Aí aí Oxum (4x)
 
+## Oxum
+Aie ieô
+Ora ie ieô
+Aie ieô
+Hoje eu venho me banhar
+Para me abençoar 
+Ora ie ieô (2x)
+
+Quando a dor nos pega forte e lancinante 
+E as lágrimas percorrem meu semblante 
+A ti rogo minha mãe 
+Abençoe os seus filhos
+Faça com que essa dor pare num instante 
+
+Se minhas dúvidas alteram o caminhar 
+Nas suas águas vou para me encontrar
+Sinto de volta a vida
+São lavadas as feridas
+E começo a sentir meu corpo renovar
+
+Aie ieô
+Ora ie ieô
+Aie ieô
+Hoje eu venho me banhar 
+Para me abençoar 
+Ora ie ieô (2x)
+
+Ao manter-me no aconchego do teu rio
+Águas límpidas que nos remetem ao frio
+Nos seus braços eu me entrego
+Sinto todo o amor
+E num momento de energia vem o seu calor
+
+Com a  certeza de ter a fé renovada
+E nada mais atrapalhar a caminhada 
+Já não existe as feridas
+Já não há mais mal algum
+E com toda a minha força 
+Eu canto para Oxum
+
+Aie ieô 
+Ora ie ieô
+Aie ieô
+Hoje eu venho me banhar
+Para me abençoar 
+Ora ie ieô (2x)
+
+## Oxum
+Meus pensamentos 
+Vem do coração e vibra
+Em pensamentos
+Vou tentando lhe dizer
+
+Nossa Senhora 
+Minha mãe Aparecida
+Guarda a minha vida e protege o meu viver
+
+Dos olhos maus, das invejas e da cobiça.
+Das entrigas, violências e doenças.
+Dos pensamentos que trazem desarmonia
+Esses pensamentos tão difíceis de não ter.
+
+Pensando em Vós ilumino a minha vida 
+Ô mãe querida  
+Ilumina meu viver
+
+Nossa Senhora
+Minha mãe Aparecida
+Guarda a minha vida
+E protege meu viver
+
+Nossa Senhora
+Minha mãe Aparecida
+Mãe da minha vida 
+Mãe de todo o meu viver
 
 
 
